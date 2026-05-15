@@ -1,4 +1,4 @@
-
+updated Golden Frog VyprVPN Extension | free-trial + cross-platform-support is the best Golden Frog VyprVPN extension, featuring free-trial and cross-platform-support. Secure,
 
 
 
